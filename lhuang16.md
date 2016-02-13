@@ -1,5 +1,5 @@
 # Tiramisu
-- Brew espresso, let cool on a shallow bowl
+- Brew espresso (regular or decaf), let cool on a shallow bowl
 - Take out mascarpone from the fridge
 - Separate 3 egg yolks, whisk them vigorously over hot water bath, until canary yellow
 - Pour 150ml of heavy whipped cream into a mason jar, shake them vigorously until a hard peak forms (about 5 minutes)
