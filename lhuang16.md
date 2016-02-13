@@ -1,0 +1,11 @@
+# Tiramisu
+- Brew espresso, let cool on a shallow bowl
+- Take out mascarpone from the fridge
+- Separate 3 egg yolks, whisk them vigorously over hot water bath, until canary yellow
+- Pour 150ml of heavy whipped cream into a mason jar, shake them vigorously until a hard peak forms (about 5 minutes)
+- Blend the egg yolks, heavy whipped cream, and softened mascarpone cheese
+- Layer ladyfinger cookies lightly dipped in espresso
+- Cover with cream mixture
+- Repeat steps 7 & 8 for 2 to 3 times
+- Set in the fridge for 3 to 6 hours (not longer)
+- Dust with cocoa powder before enjoying
